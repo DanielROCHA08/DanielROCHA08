@@ -2,7 +2,7 @@
 
  * Meu time do coração é o corinthians🖤.
  * Minha comida favotira é strogonoff.
- * Gosto de séries de investigação como: Dexter e Mentalista (essa é pra poucos)🩸.
+ * Gosto de séries de investigação como: Dexter e Mentalista.
 
 ![baixados](https://github.com/user-attachments/assets/ba8c4bd3-402f-4530-905e-6aca82b7700e)
 
